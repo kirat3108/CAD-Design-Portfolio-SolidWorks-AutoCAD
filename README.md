@@ -8,6 +8,5 @@
 
 * **3D CAD/Design:** SolidWorks, NX
 * **2D Drafting:** AutoCAD, Precision Dimensioning
-* **Efficiency:** Data Entry, Research, Virtual Assistance
 
 *Contact: 9811616652 | ( https://www.upwork.com/freelancers/~0167f4d6fa70b3f927?mp_source=share )
